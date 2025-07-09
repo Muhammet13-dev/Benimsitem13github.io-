@@ -1,2 +1,2 @@
-# Benimsitem13github.io-
-Gunde kac defa bosalirisiniz
+# Benimsitem13github
+hazır mıyız gençler 
